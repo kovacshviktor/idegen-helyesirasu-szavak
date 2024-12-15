@@ -1,0 +1,1 @@
+# idegen-helyesirasu-szavak
